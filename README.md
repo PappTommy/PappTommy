@@ -6,6 +6,4 @@
 
 🎮 Currently, I'm learning (JS, Java) languages. I started programming in 2023.        ☁️                 ☁️
 
-🧾 Contact: papptomi.23@gmail.com                ☁️
-
-☁️              ☁️              ☁️
+🧾 Contact: papptomi.23@gmail.com             ☁️
